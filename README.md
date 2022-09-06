@@ -1,0 +1,1 @@
+# samsung-lang-k
